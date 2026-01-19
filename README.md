@@ -1,0 +1,1 @@
+This is a literature review I completed as part of a group in the second year of my degree. It was the first literature review I had done and written a report on, along with a presentation that was given to the rest of my degree year. The topic of AGN was entirely unknown to me at the beginning and developed my passion for astrophysics.
